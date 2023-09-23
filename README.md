@@ -1,16 +1,5 @@
 ### Hi there 👋
-dnklazjbdklzej qfkdj zklejf zmqjef 
-gvzqljkcfmùzq
-fc zùqjfe 
-kef
-neL
-EFC
-QEN
-KZS
-KNZQV
-ZQZsnev
-cknzS
-CF
+
 <!--
 **Tahmii/Tahmii** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
